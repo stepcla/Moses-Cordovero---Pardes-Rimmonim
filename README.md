@@ -1,1 +1,1 @@
-Provisional working translation of Moses Cordovero's Pardes Rimmonim. Work in progress, which will take me at least ten years to complete. 
+Provisional working translation of Moses Cordovero's Pardes Rimmonim ("Garden of Pomegranates"), an important work of theosophic Kabbalah. Work in progress, which will take me at least ten years to complete. 
